@@ -30,6 +30,6 @@ Doğru [SEO](https://seouptr.com) stratejileri sayesinde:
 🔗 Daha fazla bilgi ve profesyonel SEO hizmetleri için:  
 👉 [seouptr.com](https://seouptr.com)  
 
-<meta name="google-site-verification" content="DWxlmoZRXpinQnB7bwrRocGG0IgUtxxrQw-QdH4_s8w" />
+
 
 ---
